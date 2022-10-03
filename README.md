@@ -7,7 +7,7 @@
 
 ![皇居での新年一般参賀_2017-01-02_003](https://user-images.githubusercontent.com/20723919/193505769-65110c1c-3a81-4f43-af30-0a3ff198f8d1.JPG)
 
-![皇居での新年一般参賀_2017-01-02_004](https://user-images.githubusercontent.com/20723919/193505771-83497117-f0d9-44ba-909f-a4e1b838b036.JPG)
+![皇居での新年一般参賀_2017-01-02_004](https://user-images.githubusercontent.com/20723919/193506095-65ccff69-9c48-4b21-a507-767496d2d0ca.JPG)
 
 ![皇居での新年一般参賀_2017-01-02_005](https://user-images.githubusercontent.com/20723919/193505773-cf1e730b-5b38-45d1-8949-7b19ab1c8273.JPG)
 
